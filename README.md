@@ -1,5 +1,5 @@
 ## Hello !!👋
-I'm just trying to enjoy the journye as much as possible (:
+I'm just trying to enjoy this journey as much as possible (:
 
 <!--
 **mohanbhasin/mohanbhasin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
