@@ -1,5 +1,5 @@
 ## Hello !!👋
-Welcome to my GitHub crib! 🚪✨  
+Welcome to my GitHub profile! 🚪✨  
 My name’s Mohan Bhasin. 
 I’m a 20-year-old, currently in my **2nd year**, pursuing a B.Tech degree. 💻
 
